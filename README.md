@@ -19,5 +19,5 @@ continuing with:
   - Challenges
 
 Hope u understand these concepts clearly.
-    any queries  karnatiadityagoud@gmail.com
+    any queries  karnatiadityagoud@gmail.com and....
     linkedin https://www.linkedin.com/in/aditya-32m5/ 
